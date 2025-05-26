@@ -47,7 +47,7 @@ The dashboard includes the following sections:
 
 **Dilip pal**  
 📧 [dilippal07688@gmail.com]  
-🔗 [LinkedIn Profile](https://github.com/dilip468)
+🔗 [LinkedIn Profile](www.linkedin.com/in/dilip-pal-219203287)
 
 ---
 
